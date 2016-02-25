@@ -1,2 +1,2 @@
 # Amit-Kishan-Venkataraman
-Actively seeking full time entry level position in the field of Computer Science with an emphasis on JavaScript and Node.js
+Actively seeking full time entry level position in the field of Computer Science with an emphasis on JavaScript and Node.js as I'm really passionate about it!
